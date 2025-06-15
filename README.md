@@ -1,4 +1,4 @@
-# arte-no-compartido
+# Arte no compartido
 Obras no formalizadas, ejecutadas ni representadas, que existen exclusivamente como estructuras preconceptuales contenidas en el pensamiento del autor. No ha sido creadas para ser expuestas ni compartidas. Su consistencia depende de no ser exteriorizadas.
 
 Arte no Compartido (Mikel Urmeneta, junio 2025)
